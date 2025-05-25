@@ -10,7 +10,6 @@ todos los cuerpos interactuan entre si,
 
 xd
 
-sebabucc24@gmail.com
 
 
 
